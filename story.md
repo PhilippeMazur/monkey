@@ -15,3 +15,5 @@ Fortuna iterum favet forti, et duo venatores intercedunt. Leones, territi, effug
 Curiosa, tamen, dolet. Desiderat esse fortis sicut Fortis, sed non audet. Fortis, benevolentia, haec omnia novit. Tunc, docet Curiosam artem natacionis, et simul incedunt ad solis occasum, lingua simiarum inter se loquentes.
 
 Finita est historia simiarum in latina.
+
+Klaros
