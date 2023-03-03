@@ -1,3 +1,5 @@
+#Latijnse story
+
 In jungla densa, simiae ludunt in arboribus. Inter se communicant lingua simiarum, clamant et saltant. Una simia maxime curiosa, Curiosa, semper alios simias sequitur, explorando novos locos et res.
 
 Tamen, simiae non semper sunt amicae. Aliquando pugnant propter cibum vel territores. Fortuna favet forti, et simia magna et fortis, Fortis, victoriam semper reportat.
